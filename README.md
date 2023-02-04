@@ -12,6 +12,10 @@ Creator
 **VINO ALZWARA** <br>
 Layanan : vinoalzwarav@gmail.com <br>
 
+Butuh jasa pembuatan aplikasi atau
+web designer bisa langsung dm kita 😊
+https://www.instagram.com/vipiteamdev
+
 
 Copyrigth VIPI TEAM 2023
 
